@@ -1,0 +1,13 @@
+yn
+dsf
+dsg
+rg
+sgvg
+wrg
+wrgf
+werf
+werf
+we
+fw
+f
+w
